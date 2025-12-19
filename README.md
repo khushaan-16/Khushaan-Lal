@@ -49,7 +49,7 @@
 * 🌐 Portfolio: *Add your link*
 * 📸 Instagram: [https://www.instagram.com/_khushaaaan__16?igsh=YWg2b2w4YjdsbXQ1](https://www.instagram.com/_khushaaaan__16?igsh=YWg2b2w4YjdsbXQ1)
 * 📸 Instagram: [https://www.instagram.com/liftlaughrepeat__ig?igsh=MTJ5djdhejl2NTZtaw==](https://www.instagram.com/liftlaughrepeat__ig?igsh=MTJ5djdhejl2NTZtaw==)
-
+* 📩 Gmail: khuhsaanlal16@gmail.com
 ---
 
 \
